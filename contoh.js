@@ -1,1 +1,1 @@
-baru belajar
+baru belajar makan nasi pakai sekop
